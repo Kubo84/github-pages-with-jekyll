@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Simple and Old
 
-I'm glad you are here. I plan to talk about ...
+Welcome to all things odd and outdated...lol
